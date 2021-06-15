@@ -1,16 +1,24 @@
-### Hi there 👋
+<img src="https://github.com/Dru-Crack22/Dru-Crack22/blob/main/img/20200909_084956.jpg" width="120" height="120" align="left">
+<center>
 
-<!--
-**Dru-Crack22/Dru-Crack22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+* MY SOCIAL MEDIA :
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<a href="https://Instagram.com/story_offcial_id"><img src="https://image.flaticon.com/icons/svg/174/174855.svg" alt="alt text" width="20" height="20"></a> 
+<a href="https://wa.me/628811403654?text=Asalamualaikum+bang"><img src="https://github.com/Yayan-XD/Yayan-XD/blob/master/img/whatsapp.png" alt="alt text" width="20" height="20"></a>
+<a href="https://www.facebook.com/Bang.badru23"><img src="https://image.flaticon.com/icons/svg/174/174848.svg" alt="alt text" width="20" height="20"></a> <a href="https://squadcyberpeopleteam.blogspot.com/?m=1"><img src="https://github.com/Yayan-XD/Yayan-XD/blob/master/img/logo_blogspot_by_YayanXD.jpg" alt="alt text" width="20" height="20"></a> <a href="https://youtube.com/channel/UCNvDaXoyAVCNJbSqtaXA-mg"><img src="https://github.com/Yayan-XD/Yayan-XD/blob/master/img/logo_yt_by_YayanXD.jpg" alt="alt text" width="20" height="20"></a> 
+&nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;   &nbsp;&nbsp;   
+___
+_Smoking And Coffiee_
+___
+
+
+Wanna Hire Me ? 
+
+Contact : mbadruwasih8@gmail.com
+
+#### Donate
+
+* Donate me on  <a href="https://saweria.co/YayanXD">HERE!</a>
+, or i will jump like nishimiya >:(
+
