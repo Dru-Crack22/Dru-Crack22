@@ -19,6 +19,6 @@ Contact : mbadruwasih8@gmail.com
 
 #### Donate
 
-* Donate me on  <a href="https://saweria.co/YayanXD">HERE!</a>
+* Donate me on  <a href="https://https://saweria.co/Dru230">HERE!</a>
 , or i will jump like nishimiya >:(
 
